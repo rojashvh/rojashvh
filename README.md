@@ -2,3 +2,7 @@
 
 # Current Projects:
 **GVMPc:** Crimelife Project with the well known GVMP Clientside, but with Selfmade Backend. [Discord](https://discord.gg/nryTzHNJGM)
+
+## Projects in the Past:
+**Reacted Crimelife:** It was a fully Nexus Crimelife Script Based Crimelife Server, it had around 80-90 Players.
+**Many Others:** Projects that dont need an extra mention because they never came online xd.
