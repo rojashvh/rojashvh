@@ -4,6 +4,4 @@
 **getting good at siege again**
 
 ## Projects in the Past:
-**Reacted Crimelife:** It was a fully Nexus Crimelife Script Based Crimelife Server, it had around 80-90 Players.
-
-**Many Others:** Projects that dont need an extra mention because they never came online xd.
+leck meine eier, ich habe sneaker sneaker von jordan, sneaker von nike, bitch ich bin wie andy lubitz oder sein flugsitz
